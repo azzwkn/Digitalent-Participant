@@ -1,1 +1,2 @@
 [Sertifikat_AZZUMARA WIKAN AMARJEHA_Intermediate Assistant Web Developer - DEX - Universitas Jember (3).pdf](https://github.com/user-attachments/files/34169601/Sertifikat_AZZUMARA.WIKAN.AMARJEHA_Intermediate.Assistant.Web.Developer.-.DEX.-.Universitas.Jember.3.pdf)
+[Sertifikat_AZZUMARA WIKAN AMARJEHA_Fundamental of Assistant Web Developer - DEX - Universitas Jember.pdf](https://github.com/user-attachments/files/34169703/Sertifikat_AZZUMARA.WIKAN.AMARJEHA_Fundamental.of.Assistant.Web.Developer.-.DEX.-.Universitas.Jember.pdf)
